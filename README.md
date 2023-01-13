@@ -1,4 +1,4 @@
-Holis! 🤍 I’m @0xtra from 🇲🇽
+Holis! 🤍 I’m Xtra from 🇲🇽
 
 Nature carer 🌱 and worlds explorer 👩🏻‍🚀
 
