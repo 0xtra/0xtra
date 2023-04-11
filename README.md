@@ -1,9 +1,5 @@
-Holis! 🤍 I’m Aida Mariana from 🇲🇽
-
-Bringing DeFi to the Masses. Join me and experience the future of businesses with DAOs 🦋
-
-Nature carer 🌱 and worlds explorer 👩🏻‍🚀
+Holis! 🤍 I’m Xtra from 🇲🇽
 
 Ostinato Rigore. Quid pro quo sucks. 
 
-https://twitter.com/aidamariana
+https://twitter.com/0x_tra
